@@ -5,4 +5,4 @@ is really awesome!
 
 new line
 
-Giancarlo Pernudi Segura was here :)
+Giancarlo Pernudi Segura was here :) and he's lame :(
